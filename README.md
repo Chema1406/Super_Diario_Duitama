@@ -74,3 +74,21 @@ Editor de Salud
  
 ![Imagen](https://e00-co-marca.uecdn.es/claro/assets/multimedia/imagenes/2021/08/06/16282815401845.jpg)
 El adiós de Messi y su desvinculación con el FC Barcelona ha tenido un impacto mundial. La bomba estalló ayer por la tarde con el comunicado del club blaugrana y la noticia ha aparecido hoy en portada de todos los periódicos. No obstante, las despedidas se estaban haciendo de rogar y resultaba algo extraño que ningún compañero se pronunciase en redes sociales sobre la marcha del mejor futbolista de la historia del club.Después de la rueda de prensa de Joan Laporta es cuando el vestuario culé ha decidido rendir homenaje al '10'. Instagram se ha llenado de mensajes de mucha carga emocional y de recuerdos que perdurarán por siempre en las mente de los culés.Riqui Puig: "Lo mejor que me ha sucedido en estos dos años"El canterano, de los últimos en llegar a la primera plantilla, ha compartido diferentes fotos con Messi, incluso alguna siendo un niño y ha mostrado su agradecimiento al argentino."He podido vivir el sueño de cualquier niño cuya pasión es el fútbol. Poder compartir vestuario y equipo con el mejor jugador del mundo. Convivir, aprender y competir con él es lo mejor que me ha sucedido en estos dos últimos años. Gracias Leo.
+
+## **POLITICA**
+
+## **Comisión de Acusación archiva investigación contra Santos sobre Odebrecht**
+ 
+![Texto alternativo](https://www.google.com/url?sa=i&url=https%3A%2F%2Ftheelders.org%2Fnews%2Fjuan-manuel-santos-se-suma-elders&psig=AOvVaw0i78c8kH5txfr_E1N-s7nU&ust=1628462466295000&source=images&cd=vfe&ved=0CAsQjRxqFwoTCIicvcn9n_ICFQAAAAAdAAAAABAI) 
+ 
+tal como estaba previsto, la Comisión de Acusación archivó este miércoles la investigación que se llevaba contra  
+el expresidente Juan Manuel Santos por la supuesta entrada de dineros de Odebrecht a su campaña. 
+La decisión se tomó luego de analizar el texto inhibitorio que presentaron los representantes investigadores  
+Jhon Jairo Cárdenas y Andrés Calle, quienes consideraron que no había pruebas suficientes para continuar  
+con el caso. 
+Para los representantes no existe por ahora “una sola prueba sobre cualquier conducta ilegal cometida  
+por el Dr. Juan Manuel Santos Calderón". 
+Frente a ellos, partidos de diversos sectores se han pronunciado. Algunos han estado en contra de  
+esta decisión, especialmente los afines al Gobierno. 
+"Único expresidente de América Latina que con pruebas más que suficientes sigue impune con Odebtecht. Urgente 
+referendo para también reformar a la justicia", trinó el senador del Centro Democrático, Carlos Felipe Mejía. 
