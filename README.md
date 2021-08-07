@@ -36,7 +36,7 @@ Variante delta pone a tambalear inmunidad de rebaño
  
 ## **SALUD**
 
-## **La expansión de la variante delta del Sars CoV-2, con su capacidad de contagio más elevado con respecto al coronavirus original, ha puesto a dudar a los expertos sobre las previsiones que inicialmente se habían hecho sobre la cobertura de vacunación necesaria para alcanzar la inmunidad colectiva. **
+## **La expansión de la variante delta del Sars CoV-2, con su capacidad de contagio más elevado con respecto al coronavirus original, ha puesto a dudar a los expertos sobre las previsiones que inicialmente se habían hecho sobre la cobertura de vacunación necesaria para alcanzar la inmunidad colectiva.**
  
  
 De hecho, la Organización Mundial de la Salud (OMS) reconoció que esta podría ser superior al 70 por ciento no solo por efecto de la variante delta encontrada en la India, sino también por acción de sus homologas alfa, beta y gama (variantes de preocupación) que han demostrado tener mayor capacidad de transmisión y reducir potencialmente la efectividad de las medidas recomendadas para contener la pandemia. 
