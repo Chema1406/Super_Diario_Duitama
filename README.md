@@ -68,3 +68,7 @@ El Instituto Nacional de Salud confirmó que la variante delta ya circula en Bog
 CARLOS FRANCISCO FERNÁNDEZ 
 Editor de Salud  
  
+ ## **DEPORTES**
+ ## **El Barcelona se despide, Gerard Piqué el más emotivo: "Leo, te quiero"** 
+ 
+![Imagen](https://e00-co-marca.uecdn.es/claro/assets/multimedia/imagenes/2021/08/06/16282815401845.jpg)
